@@ -1,4 +1,4 @@
-# Hi There 👋 , I'm Rezky Fadilla Ramadhan!
+# Hyy , I'm Rezky Fadilla Ramadhan!
 
 ### Tools:
 <p>
